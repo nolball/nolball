@@ -5,7 +5,8 @@
 
 **Here is an old photo of me:**
 
-![IMG_0665 (4)](https://github.com/user-attachments/assets/434ee20a-4347-4db2-a6ee-53254f40bba7)
+![IMG_0665 (5)](https://github.com/user-attachments/assets/4f5c958b-dc4d-411f-a0be-d879bb285864)
+
 
 
 
